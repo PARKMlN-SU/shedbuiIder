@@ -1,4 +1,6 @@
-![image description](https://files.catbox.moe/5ja3ui.jpg)
+![image description](https://files.catbox.moe/dnp1ga.jpg)
+art belongs to Moosimilk on tumblr
+
 ░ ⌗ 𝘙𝘌𝘈𝘋 𝘙𝘌𝘕𝘛𝘙𝘠 𝘍𝘖𝘙 𝘔𝘖𝘙𝘌 𝘚𝘛𝘜𝘍𝘍!! 
 - 
 ↷✦; 𝘎𝘢𝘣𝘦 / 𝑆ℎ𝑒𝑑𝑙𝑒𝑡𝑠𝑘𝑦 Or 𝘔𝘢𝘵𝘵 ︴
