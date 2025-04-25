@@ -11,6 +11,6 @@ art belongs to Moosimilk on tumblr
 
 ⌑ 𝘈 𝘍𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐𝘕 + 𝘖𝘛𝘏𝘌𝘙𝘒𝘐𝘕 
 
-°  I currently have a huge fixation on buildermon , 𝙈𝙖𝙩𝙩1337 and daisy1337
+°  I currently have a huge fixation on buildermon , 𝙈𝙖𝙩𝙩1337
  -
 ༄ C+H & Int and bmf is appreciated please!!! I don't bite :3 I also accept all friend requests as well!! 
