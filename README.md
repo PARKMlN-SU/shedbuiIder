@@ -5,12 +5,10 @@ art belongs to Moosimilk on tumblr
 - 
 ↷✦; 𝘎𝘢𝘣𝘦 / 𝑆ℎ𝑒𝑑𝑙𝑒𝑡𝑠𝑘𝑦 ︴
 
-⌗ 𝐻𝑒/𝐻𝑖𝑚 𝗼𝗿 𝑇ℎ𝑒𝑦/𝑇ℎ𝑒𝑚 pronouns idm.
+⌗ 𝐻𝑒/𝐻𝑖𝑚 𝗼𝗿 𝑇ℎ𝑒𝑦/𝑇ℎ𝑒𝑚 pronouns idc.
 
 ▒  𝘽𝙞𝙨𝙚𝙭𝙪𝙖𝙡 ᥬ 𝘈𝘴𝘦𝘹𝘶𝘢𝘭
 
 ⌑ 𝘈 𝘍𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐𝘕 + 𝘖𝘛𝘏𝘌𝘙𝘒𝘐𝘕 
 
-°  I currently have a huge fixation on buildermon
- -
-༄ C+H & Int and bmf is appreciated please!!! I don't bite at all.. I also accept all friend requests as well!! 
+༄ C+H & Int is appreciated please!!! I don't bite at all.. feel free to bmf aswell.. I also accept all friend requests too , so dont be afraid!! 
