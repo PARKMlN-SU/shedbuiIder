@@ -1,5 +1,5 @@
-![image description](https://files.catbox.moe/dnp1ga.jpg)
-art belongs to Moosimilk on tumblr
+![image description](https://files.catbox.moe/eo1mqh.png)
+art belongs to _vampyycatz on twitter 
 
 ░ ⌗ 𝘙𝘌𝘈𝘋 𝘙𝘌𝘕𝘛𝘙𝘠 𝘍𝘖𝘙 𝘔𝘖𝘙𝘌 𝘚𝘛𝘜𝘍𝘍!! and draw me things on straw.
 - 
