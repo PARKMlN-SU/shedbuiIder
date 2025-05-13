@@ -9,6 +9,6 @@ art belongs to _vampyycatz on twitter
 
 ▒  𝘽𝙞𝙨𝙚𝙭𝙪𝙖𝙡 ᥬ 𝘈𝘴𝘦𝘹𝘶𝘢𝘭
 
-⌑ 𝘈 𝘍𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐𝘕 + 𝘖𝘛𝘏𝘌𝘙𝘒𝘐𝘕 
+⌑ 𝘈 𝘍𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐𝘕 
 
 ༄ C+H & Int is appreciated please!!! I don't bite at all.. feel free to bmf aswell.. I also accept all friend requests too , so dont be afraid!! 
