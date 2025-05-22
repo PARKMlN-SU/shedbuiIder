@@ -1,9 +1,10 @@
-![image description](https://files.catbox.moe/tj6d0e.png)
-art belongs to _vampyycatz on twitter 
+![image description](https://files.catbox.moe/o347fw.png) 
+
+*pretty graphic by my oomf*
 
 ░ ⌗ 𝘙𝘌𝘈𝘋 𝘙𝘌𝘕𝘛𝘙𝘠 𝘍𝘖𝘙 𝘔𝘖𝘙𝘌 𝘚𝘛𝘜𝘍𝘍!! and draw me things on straw.
 - 
-↷✦; 𝘎𝘢𝘣𝘦 / 𝑆ℎ𝑒𝑑𝑙𝑒𝑡𝑠𝑘𝑦 ︴
+↷✦; 𝘎𝘢𝘣𝘦 / 𝑆ℎ𝑒𝑑𝑙𝑒𝑡𝑠𝑘𝑦 ︴' 
 
 ⌗ 𝐻𝑒/𝐻𝑖𝑚, 𝑇ℎ𝑒𝑦/𝑇ℎ𝑒𝑚 or she/her pronouns idc.
 
