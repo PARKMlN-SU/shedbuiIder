@@ -10,6 +10,8 @@
 
 ▒  𝘽𝙞𝙨𝙚𝙭𝙪𝙖𝙡 ᥬ 𝘈𝘴𝘦𝘹𝘶𝘢𝘭 + Genderfluid 
 
-⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N,,, mirrorship, Selfship, mutiship :p
+⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N,,,
+
+Uhh im a mirrorship, Selfship and mutishipper :p
 
 ༄ C+H & Int is appreciated please!!! I don't bite at all.. feel free to bmf aswell.. I also accept all friend requests too , so dont be afraid!! 
