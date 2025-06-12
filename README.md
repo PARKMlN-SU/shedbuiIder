@@ -6,6 +6,7 @@
 - 
 ↷✦; 𝘎𝘢𝘣𝘦 / 𝑆ℎ𝑒𝑑 • or Nick !! ' 
 erm I change my name alot, pls ignore it...
+
 ⌗ 𝐻𝑒/𝐻𝑖𝑚, 𝑇ℎ𝑒𝑦/𝑇ℎ𝑒𝑚 or she/her pronouns idc.
 
 ▒  𝘽𝙞𝙨𝙚𝙭𝙪𝙖𝙡 ᥬ 𝘈𝘴𝘦𝘹𝘶𝘢𝘭 + Genderfluid 
