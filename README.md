@@ -8,7 +8,7 @@
 
 ▒  𝘽𝙞𝙨𝙚𝙭𝙪𝙖𝙡 ᥬ 𝘈𝘴𝘦𝘹𝘶𝘢𝘭 + Genderfluid 
 
-⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N
+⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N, otherkin
 
 Yumeshipper, mirror n multishipper :p
 
