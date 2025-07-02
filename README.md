@@ -14,5 +14,4 @@ Yumeshipper, mirror n multishipper :p
 
 ༄ C+H & Int is appreciated please!!! feel free to bmf aswell.. I also accept all friend requests too , so dont be afraid!! 
 
-ships interact heh.
 ![gif description](https://files.catbox.moe/ydbzpt.gif)
