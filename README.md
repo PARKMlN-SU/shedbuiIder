@@ -14,4 +14,5 @@ Yumeshipper, mirror n multishipper :p
 
 ༄ C+H & Int is appreciated please!!! feel free to bmf aswell.. I also accept all friend requests too , so dont be afraid!! 
 
+any ships int /platonic 
 ![gif description](https://files.catbox.moe/ydbzpt.gif)
