@@ -1,4 +1,5 @@
 ![gif description](https://files.catbox.moe/rnk9mu.gif) 
+I don't care about doubles ^_^ int freely!
 
 ░ ⌗ 𝘙𝘌𝘈𝘋 MY LINKS 𝘍𝘖𝘙 𝘔𝘖𝘙𝘌 𝘚𝘛𝘜𝘍𝘍!! and sign my ata or straw
 - 
