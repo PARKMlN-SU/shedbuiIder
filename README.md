@@ -14,6 +14,6 @@ I don't care about doubles I guess..just iwc sometimes
 
 Yumeshipper, mirror n multishipper :p
 
-༄ C+H & Int is appreciated please!!! feel free to bmf aswell.. I also accept all friend requests too , so dont be afraid!! 
+༄ C+H & Int is appreciated please!!! feel free to bmf aswell.. I also accept all friend requests too , so dont be afraid!!! 
 
 ![gif description](https://files.catbox.moe/ydbzpt.gif)
